@@ -1,2 +1,2 @@
-Do you know
+you know
 I Love You
